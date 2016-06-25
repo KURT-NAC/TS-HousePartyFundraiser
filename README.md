@@ -1,4 +1,4 @@
-# totemstar
+# Totemstar House Party Fundraiser
 
 Yo! Just seeing this after dinner and a bike ride. I like where it's going! I think since the ticket price is $100 per person, we should make this look really exclusive. Our logo is .:||:. (centered) above TOTEM STAR in Braggadocio font. Can we put that at the top? I think in smaller font under HOUSE PARTY (remove JAM SESH) we could put something like "An Intimate Evening to Amplify Youth Voice." We could say SPECIAL PERFORMANCES BY TOTEM STAR RECORDING ARTISTS. And maybe replace the anchor with a music note? I think we should say 6-9PM / DINNER, DRINKS, AND A SHOW. Something like that? What you think? I'm excited!
 
